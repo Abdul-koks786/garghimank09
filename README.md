@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **ahimank2004@gmail.com** For Collaboration/Project or Anyt
 - 👯 **I’m looking to collaborate on:** Agentic Ai projects || Automation
 - 🤔 **I’m looking for help with:** NA
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** ahimank2004@gmail.com, garghimank09@gmail.com
+- 📫 **How to reach me:** ahimank2004@gmail.com, garghimank09@gmail.com,www.linkedin.com/in/himankgarg 
 - 😄 **Pronouns:** Himank Garg
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
